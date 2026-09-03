@@ -1,1 +1,1 @@
-LINK VIDEO TUGAS 3 MOBILE: https://drive.google.com/file/d/1du-5HYPXDlX4Gg7smdd9tplXo4HsohqS/view?usp=sharing
+LINK VIDEO TOKO ONLINE: https://youtu.be/zc2E7l2Db7A?si=17rbN5doqxZ8oinH
